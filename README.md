@@ -14,4 +14,4 @@
 
 ### Júlia Zacharin
 
-### Linkedin: https://www.linkedin.com/in/juliazacharin
+### Linkedin: https://www.linkedin.com/in/julia-zacharin
